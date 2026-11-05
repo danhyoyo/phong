@@ -2,6 +2,8 @@
 Lê Tấn Quốc , Tân Bình - QTB
 8tr3/tháng
 1PN/Duplex bancol,thang máy
+
+KO đi bộ dc, nhưng dc cái cũng rộng và có ban công, rẻ nữa
 ```
 
 ## Hình ảnh
